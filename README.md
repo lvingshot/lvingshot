@@ -1,8 +1,11 @@
-<img width="1000" height="55" alt="image" src="https://github.com/user-attachments/assets/196b1a22-820e-464d-9ae0-0d7e809c7e54" />
-<h1><p align="center">Hello!! ^_^<h1>
-<img width="1000" height="55" alt="image" src="https://github.com/user-attachments/assets/758c0d25-3a1b-4aec-8073-f37ebf469632" />
+<p align="center"><img width="1000" height="253" alt="image" src="https://github.com/user-attachments/assets/d9fcd2fb-d521-49cb-b6c8-572dc0ef2fcf" />
 
-<p align="center"><img width="237" height="499" alt="image" src="https://github.com/user-attachments/assets/1de89f2c-fa7a-4c9c-9b0d-7ea60bad6e71" />
+<h1><p align="center">Hello!! ^_^<h1>
+<p align="center"><img width="1000" height="66" alt="image" src="https://github.com/user-attachments/assets/945ef5dc-3ac5-4f76-8dd9-a4705ae22c20" />
+
+
+<p align="center"><img width="200" height="400" alt="image" src="https://github.com/user-attachments/assets/1ff809cf-d224-4cec-8d79-7c1c634163f8" />
+
 
 
 
@@ -15,19 +18,15 @@
  
 <h1><p align="center">About me;</h1>
 
--I'm Zanka, Ollie, Juni'chiro, or Till! Or whatever idc what you call me :3
+-I'm Ollie! Or Zanka/Till. I'm a Fullkin of all 3! :D I don't mind doubles, but feel free to block me if you're uncomfortable.
 
--I'm uh. 16. Soon to be 17,, yay!! NO I'M NOT UNC.
+-I'm uh. Bodily 16. Soon to be 17,, yay!! NO I'M NOT UNC.
 
--I really like playing volleyball,,, and drawing. WHEN I'M NOT IN A DAMN ART BLOCK.
-
--I'm in fandoms like; Gachiakuta, PPT, BSD, TBHK, DW, uh uh if I think of more I'll add 'em.
-
--I HAVE BAD ANXIETY.
+-I don't particularly mind interactions, as long as they're minimal.
 
 
 
-<img width="1000" height="56" alt="image" src="https://github.com/user-attachments/assets/b3778d19-e5fa-4465-81fd-e29bc58c932c" />
+<img width="1280" height="343" alt="image" src="https://github.com/user-attachments/assets/023acdcd-2c9c-4fef-9725-d70cc5f9992b" />
 
 
 
@@ -39,7 +38,7 @@
 
 -Melanie Martinez supporters,, Do I need to explain why.
 
--Anti-Fictkins, furries, etc etc.
+-Anti-Fullkins, furries, etc etc.
 
 
 
